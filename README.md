@@ -14,6 +14,6 @@ My name is [Abhay Pratap Singh], and I'm passionate about [Software Development]
 
 ## 📫 How to Reach Me
 - LinkedIn: www.linkedin.com/in/abhaysingh121
-- Email:   abhiraj700766@gmail.com
+- Email:   xxxxxxxxxxxx
 
 Feel free to connect and collaborate! 😊
